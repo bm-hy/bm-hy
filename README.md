@@ -4,6 +4,7 @@
 😞 Born to play hard, forced to lock in</br>
 💸 More broke than a BMW turn signal</br>
 👨‍🦲 Balding imminent</br>
+💤 Severely sleep deprived</br>
 
 
 # 💻 Tech Stack:
