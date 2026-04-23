@@ -1,6 +1,6 @@
 ## Greetings, I'm Bryan 🤓
 
-📚 First year Computer Science Student already regretting his decisions</br>
+📚 Second year Computer Science student contemplating his life decisions</br>
 😞 Born to play hard, forced to lock in</br>
 💸 More broke than a BMW turn signal</br>
 👨‍🦲 Balding imminent</br>
